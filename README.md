@@ -1,3 +1,3 @@
-# [LATEST CRYING AI COVER] [https://www.kisa.link/eucGi](https://youtu.be/mLJ67X2R_DE?si=cd93VrF682YhxUph]
+# # [LATEST CRYING AI COVER](https://youtu.be/mLJ67X2R_DE)
 
 i hacked marsbahis
